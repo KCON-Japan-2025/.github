@@ -3,6 +3,15 @@ K-POPや韓国文化を楽しめる世界最大級のフェスティバル「KCO
 
 【映像を見る】近すぎてドキドキ…。KCON出演アーティストのパフォーマンスの様子はこちら
 
+
+░[░▒📺📱👉LIVE NOW📺📱👉➤ ► https://worldsportshd.com/jp-festival/](https://worldsportshd.com/jp-festival/)
+
+░[░▒📺📱👉LIVE NOW📺📱👉➤ ► https://worldsportshd.com/jp-festival/](https://worldsportshd.com/jp-festival/)
+
+░[░▒📺📱👉LIVE NOW📺📱👉➤ ► https://worldsportshd.com/jp-festival/](https://worldsportshd.com/jp-festival/)
+
+
+
 会場内にはキャンペーンブースやフードゾーンも。BuzzFeed編集部は1日目に潜入取材。絶品の韓国グルメを実食してきました！
 
 大人気インスタント麺「辛ラーメン」のブースでは、新商品「辛ラーメン トゥーンバ」の試食コーナーがありました。「トゥーンバ」は、韓国を中心に流行しているピリ辛クリームパスタのこと。クリーミー＆リッチ、辛さ控えめで食べやすいです！
